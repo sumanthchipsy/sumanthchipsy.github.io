@@ -1,1 +1,0 @@
-# sumanthchipsy.github.io
